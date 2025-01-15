@@ -27,3 +27,5 @@ om mijn moodboard te maken.
 - Ik voel mij momenteel nog zelfzeker over vandaag. Alles verloopt zoals wij het wouden tot nu toe :smiley:.
 ---
 
+
+
